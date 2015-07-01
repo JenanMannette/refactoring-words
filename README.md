@@ -41,5 +41,5 @@ Within an hour of a teenage boy smoking his first marijuana cigareete, he will l
 ```
 
 ```
-When everyone on earth becomes flesh-eating zombies, there will be no more flesh left.
+When everyone on earth becomes flesh-eating zombies, there will be no more flesh left, and they will be dirt-eating zombies.
 ```
